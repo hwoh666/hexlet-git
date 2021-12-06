@@ -1,0 +1,1 @@
+GUBOI TRYASI
